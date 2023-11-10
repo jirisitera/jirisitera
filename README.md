@@ -1,1 +1,1 @@
-### Hey there! My name is Jiří, a developer who does Java, Python, C and more!
+### Hey there! My name is Jiří and I'm a developer who does Java, Python, C and more!
