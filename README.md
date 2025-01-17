@@ -1,1 +1,1 @@
-### Lead Director for the Crystal Caverns Minecraft server.
+Hey there! Check out my [website](https://jirisitera.github.io/website/) to learn more about me!
